@@ -1,1 +1,0 @@
-# vanyakulinichPythonStudy.github.io
